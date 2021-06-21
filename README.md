@@ -11,7 +11,7 @@
 | Real Name:    | Linda Chien    |
 | Instagram:    | @butterfly092288     |
 
-< https://emilychen0106.github.io/>
+<https://github.com/EmilyChen0106>
 
 -🦋🦋🌸🦋🦋🦋🌸🦋🦋🦋🦋🦋🌸🦋🦋🌸🦋🦋🦋🦋🌸🦋🦋🌸
 
